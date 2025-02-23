@@ -27,4 +27,4 @@ Allow me to briefly explain my strengths:
 &nbsp;&nbsp;&nbsp;&nbsp;●&nbsp;&nbsp;&nbsp;&nbsp;I protect your data and never use your account’s login or password. I operate solely using your unique identifier in the Grass system.
 
 ✅ <b>Responsibility</b><br>
-&nbsp;&nbsp;&nbsp;&nbsp;●&nbsp;&nbsp;&nbsp;&nbsp;I launch all new processes in a queue order, but only from 10:00 AM to 6:00 PM—primarily Monday through Friday (UTC +3) — while my support team is online to assist you if needed.
+&nbsp;&nbsp;&nbsp;&nbsp;●&nbsp;&nbsp;&nbsp;&nbsp;I launch all new processes in a queue order, but only from 11:30 AM to 6:00 PM—primarily Monday through Friday (UTC +3) — while my support team is online to assist you if needed.
