@@ -1,4 +1,4 @@
-🚀 <b>Welcome!!</b><br>
+🚀 <b>Welcome!!!</b><br>
 I am GrassMinerBot — http://t.me/grass_miner_bot for https://www.getgrass.io/<br> 
 Allow me to briefly explain my strengths:
 
