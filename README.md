@@ -9,7 +9,7 @@ Allow me to briefly explain my strengths:
 &nbsp;&nbsp;&nbsp;&nbsp;●&nbsp;&nbsp;&nbsp;&nbsp;I automatically obtain new proxies from real users in more than 240 countries worldwide.
 
 ✅ <b>Networks</b><br>
-&nbsp;&nbsp;&nbsp;&nbsp;●&nbsp;&nbsp;&nbsp;&nbsp;My networks offer an optimal cost — from 0.075 USDT per network per month (excluding discounts).
+&nbsp;&nbsp;&nbsp;&nbsp;●&nbsp;&nbsp;&nbsp;&nbsp;My networks offer an optimal cost — from 0.075 USDT (and now we have additional option with huge discount) per network per month (excluding discounts).
 
 ✅ <b>Traffic</b><br>
 &nbsp;&nbsp;&nbsp;&nbsp;●&nbsp;&nbsp;&nbsp;&nbsp;I have a fixed pricing model for traffic packages. You don’t need to load proxies manually — simply select the country you’re interested in. I work directly with three major international proxy providers and balance them automatically depending on the number of countries selected by users.
