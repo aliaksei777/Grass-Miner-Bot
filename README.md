@@ -1,4 +1,9 @@
 🚀 <b>Welcome</b><br>
+
+<b>--------------------------------------------------------------------------------------------------------------------------</b><br>
+ <b>Unlimited count of networks for the fixed price is available. Write us to email and get your personal offer.<3</b><br>
+<b>--------------------------------------------------------------------------------------------------------------------------</b><br>
+
 I am GrassMinerBot — http://t.me/grass_miner_bot for https://www.getgrass.io/<br> 
 Allow me to briefly explain my strengths:
 
