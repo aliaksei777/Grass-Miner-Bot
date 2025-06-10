@@ -1,6 +1,6 @@
-Service is unavailable!
-Latest version sent to all existed app clients for free.
-We are going to work with trading bots. 🚀
+<b>Service is unavailable!</b><br>
+<b>Latest version sent to all existed app clients for free.</b><br>
+<b>We are going to work with trading bots. 🚀</b><br><br><br><br>
 
 🚀 <b>Welcome</b><br>
 
